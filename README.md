@@ -1,0 +1,1 @@
+# skanatek-intership
